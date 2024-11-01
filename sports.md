@@ -5,7 +5,7 @@ I am a **massive** football fan **especially** when it comes to Mizzou. One of t
 
 #### Basketball 
 Basketball is my second favorite sport, I'm not a huge _NBA_ fan but I **Love** college basketball, specifically _March Madness_.
-I played basketball for several years when I was younger, I need to start playing again.
+I played basketball for several years when I was younger, I need to start playing again. Like football, I am a pretty big Mizzou fan, even though the last year was **ROUGH** to say the least. I also have been a rooting for Creighton because my friend from middle school, Ryan Kalkbrenner plays there.
 
 #### Baseball
 I played baseball for 12 years, I used to love it but I burnt myself out sadly. I also _HATE_ the current state of the _MLB_, the lack of salary caps and differing of contracts ****don't belong** in professional sports in my opinion, the _MLB_ is on track to have 4-5 teams with a monopoly on All-Star Players
