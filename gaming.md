@@ -1,7 +1,8 @@
 # Gaming/Tech
 
 #### Gaming
-While I love sports, I am also a pretty big nerd when it comes to gaming and tech. 
+While I love sports, I am also a pretty big nerd when it comes to gaming and tech. I go through phases where I play either no video games at all for a few months, or I'm playing a lot. 
+Recently the two games I have been playing are the new Call of Duty: Black Ops 6, and Valve's new game Deadlock. Black Ops 6 is surprisingly good as the first Call of Duty game I've played in 5 or 6 years. Personally I'm more of a Zombies guy than Multiplayer. ![BO6](BO6.jpg)
 
 
 
