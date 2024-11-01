@@ -1,6 +1,7 @@
 ## Sports
 #### Football
-I am a **massive** football fan **especially** when it comes to Mizzou. One of the greatest memories I have is the [_Border War_ game against Arkansas in 2014](https://www.espn.com/college-football/game/_/gameId/400548325/arkansas-missouri). My Dad took me to that game, we won the game and won the SEC East as well, I got to see the students rush the field, and at 11 years old I knew I wanted to be a Tiger. I also played football a bit growing up.![Alt text](https://zounation.com/frank-broyles-and-the-art-of-defection/"fieldrush")
+I am a **massive** football fan **especially** when it comes to Mizzou. One of the greatest memories I have is the [_Border War_ game against Arkansas in 2014](https://www.espn.com/college-football/game/_/gameId/400548325/arkansas-missouri). My Dad took me to that game, we won the game and won the SEC East as well, I got to see the students rush the field, and at 11 years old I knew I wanted to be a Tiger. I also played football a bit growing up. ![Field rush](fieldrush.jpg)
+
 
 #### Basketball 
 Basketball is my second favorite sport, I'm not a huge _NBA_ fan but I **Love** college basketball, specifically _March Madness_.
